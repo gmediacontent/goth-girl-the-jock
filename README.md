@@ -1,1 +1,2 @@
-# goth-girl-the-jock
+# Goth Girl & The Jock
+Une relation improbable naît. Les contraires s'attirent-ils ? Ou leurs différences les sépareront-elles ? Suivez l'histoire d'Ophélia, une fille gothique, et de Tyler, un footballeur populaire, tandis qu'ils traversent leur vie de lycéens, assis côte à côte en classe !
